@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with new birdeye sniper bot | liquidity-sniping + blockchain-scanning. Featuring liquidity-sniping and blockchain-scanning, it's the best
 
 
 
